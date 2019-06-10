@@ -10,6 +10,7 @@ Updated: 5:50pm, 10 Jun, 2019
 英语原文链接：https://www.scmp.com/news/hong-kong/politics/article/3013758/why-did-hundreds-thousands-hongkongers-take-streets-protest
 
 文章部分内容来自：https://www.scmp.com/news/hong-kong/politics/article/3013752/human-sea-white-washes-through-hong-kong-masses-register
+
 译者：Arios
 
 译者申明：本翻译为本人练手作品，仅供本人英语学习之用，不代表本人同意新闻中的任何观点。
