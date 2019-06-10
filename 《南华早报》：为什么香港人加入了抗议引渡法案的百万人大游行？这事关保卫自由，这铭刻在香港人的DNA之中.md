@@ -15,7 +15,7 @@ Updated: 5:50pm, 10 Jun, 2019
 
 译者申明：本翻译为本人练手作品，仅供本人英语学习之用，不代表本人同意新闻中的任何观点。
 
-[![V6xXDK.md.jpg](https://s2.ax1x.com/2019/06/11/V6xXDK.md.jpg)](https://imgchr.com/i/V6xXDK)
+[![V6xXDK.md.jpg](https://github.com/Arioseins/English-Study/blob/master/pic/%E9%A6%99%E6%B8%AF%E8%BF%94%E9%80%81%E4%B8%AD/68747470733a2f2f73322e617831782e636f6d2f323031392f30362f31312f56367858444b2e6d642e6a7067.jpg)](https://imgchr.com/i/V6xXDK)
 
 年轻人陈华（音译）曾经与如人海一般的示威者们一同抗争，丝毫无惧酷暑热浪、抗议人群缓慢的步伐甚至是抗争失败的恐惧。
 
@@ -25,7 +25,7 @@ Updated: 5:50pm, 10 Jun, 2019
 
 时间快进到了2019年，当成千上万的香港人在星期天（六月九号）涌上街头的时候，与当年完全相同的情绪在城市的上空宣泄——香港人再一次表达了反对。
 
-[![VcSCoF.png](https://s2.ax1x.com/2019/06/11/VcSCoF.png)](https://imgchr.com/i/VcSCoF)
+![这里随便写文字](https://github.com/Arioseins/English-Study/blob/master/pic/%E9%A6%99%E6%B8%AF%E8%BF%94%E9%80%81%E4%B8%AD/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20190611003655.png)
 
 这一次抗议者们反对的是引渡法案，该引渡法案将会允许香港将逃犯移送至法律体系不够健全的地区，包括中国大陆。
 
@@ -41,7 +41,7 @@ Updated: 5:50pm, 10 Jun, 2019
 
 但是在午夜之后，情况变得严峻起来。在立法会门外出现了丑陋的暴力场面，有一个暴徒冲击了铁制隔离护栏。警察使用了警棍和胡椒喷雾予以回应，这一切都被记者的摄像机记录下来。
 
-[![V6zPgI.md.jpg](https://s2.ax1x.com/2019/06/11/V6zPgI.md.jpg)](https://imgchr.com/i/V6zPgI)
+[![V6zPgI.md.jpg](https://github.com/Arioseins/English-Study/blob/master/pic/%E9%A6%99%E6%B8%AF%E8%BF%94%E9%80%81%E4%B8%AD/68747470733a2f2f73322e617831782e636f6d2f323031392f30362f31312f56367a5067492e6d642e6a7067.jpg)](https://imgchr.com/i/V6zPgI)
 
 15年前，受到多重困境的驱使，愤怒的示威者走上了街头，这些困境包括从国家安全法案到SARS危机以及经济的不景气。
 
@@ -49,7 +49,7 @@ Updated: 5:50pm, 10 Jun, 2019
 
 50岁的吴国宾（音译）是一个视力受损的香港居民，他上一次参加集会还是2003年的游行，他说：“我已经不再相信香港特首了，她甚至都不敢谈论天安门事件，她在处理来自大陆的引渡请求时，她只会扮演一个守门员的角色。这对于香港来说是一个不成则败的时刻，尽管我并不总是一个示威者，但是我没有别的选择。”
 
-[![V6xjHO.md.jpg](https://s2.ax1x.com/2019/06/11/V6xjHO.md.jpg)](https://imgchr.com/i/V6xjHO)
+[![V6xjHO.md.jpg](https://github.com/Arioseins/English-Study/blob/master/pic/%E9%A6%99%E6%B8%AF%E8%BF%94%E9%80%81%E4%B8%AD/68747470733a2f2f73322e617831782e636f6d2f323031392f30362f31312f5636786a484f2e6d642e6a7067.jpg)](https://imgchr.com/i/V6xjHO)
 
 Rose Wu博士是公民人权阵线的首位召集人，他组织了2003年的游行活动。他说，2003年人们是被愤怒的情绪驱使走上街头，与此大相径庭的是，这次周日游行人们自发地走上街头，这种自发性是无与伦比的。
 
@@ -81,7 +81,8 @@ Wu说：“世界范围内迅速且强烈的回应为香港市民提供了巨大
 
 他说，“林郑月娥不仅仅冒犯了泛民派，还冒犯了广大群众和职业精英们，没人会愿意成为或者表面成为她的亲密盟友了。”
 
-[![V6zkKP.png](https://s2.ax1x.com/2019/06/11/V6zkKP.png)](https://imgchr.com/i/V6zkKP)
+![这里随便写文字](https://github.com/Arioseins/English-Study/blob/master/pic/%E9%A6%99%E6%B8%AF%E8%BF%94%E9%80%81%E4%B8%AD/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20190611002552.png)
+
 
 时光倒回2003年，高中生的陈也许已经对改变国家安全法案的立法进程感到悲观。但是在那场游行的4天之后，政府就作出了让步并搁置了那项法案。
 
